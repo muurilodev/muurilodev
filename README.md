@@ -2,7 +2,7 @@
 
 **Hey!** 🌼
 
-I'm *Murilo*, currently a student of Information Systems and Software engineering
+*I'm **Murilo**, currently a student of Information Systems and Software engineering*
 
 
 
