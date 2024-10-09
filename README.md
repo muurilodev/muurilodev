@@ -6,6 +6,8 @@
 <img align= "bottom" src=https://i.pinimg.com/enabled_lo/564x/47/1c/e7/471ce7b6d591a328189506ae6cbb59d6.jpg width=250><div></div>
 ➤ **Skills**
 
+•
 
+•
 
-
+•
