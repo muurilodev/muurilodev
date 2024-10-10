@@ -14,10 +14,10 @@
 
 ➤ **More about me**<div>
 
-• 🎠 a philosophy lover
+• 🎠 *a philosophy lover*
 
-• ✍️ a writer
+• ✍️ *a writer*
 
-• 🎠 a designer
+• 🎠 *a designer*
 </div>
 --in development--
