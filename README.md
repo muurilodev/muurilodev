@@ -18,6 +18,6 @@
 
 • ✍️ a writer
 
-• 
+• 🎠 Ux & UI amateour
 
 --in development--
