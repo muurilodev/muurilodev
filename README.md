@@ -3,7 +3,7 @@
 **Hello world!** 🌼<div></div>
 
 *I'm **Murilo**,a passionated student of Information Systems and Software engineering and i would love to show you about my work here,so take a chair and let's see more about my career!*<div></div>
-<img align= "bottom" src=https://i.pinimg.com/enabled_lo/564x/47/1c/e7/471ce7b6d591a328189506ae6cbb59d6.jpg width=250><div>
+<img align= "bottom" src=https://i.pinimg.com/enabled_lo/564x/47/1c/e7/471ce7b6d591a328189506ae6cbb59d6.jpg width=250>
 ➤ **Skills**
 
 • 🌾 currently a Bachelor's student of <a href="https://www.ulbra.br/" rel="nofollow"> ULBRA </a> and <a href="https://www.unitins.br/nPortal/" rel="nofollow">UNITINS</a>
@@ -19,5 +19,5 @@
 • ✍️ a writer
 
 • 🎠 Ux & UI amateour
-
+<img align= "right" src=https://i.pinimg.com/enabled_lo/564x/34/2a/e5/342ae5f394a0130bb0646b96677fe024.jpg width=100>
 --in development--
