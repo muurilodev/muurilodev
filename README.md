@@ -19,5 +19,5 @@
 • ✍️ a writer
 
 • 🎠 Ux & UI amateour
-<img align= "right" src=https://i.pinimg.com/enabled_lo/564x/34/2a/e5/342ae5f394a0130bb0646b96677fe024.jpg width=100>
+<img align= "right" src=https://i.pinimg.com/enabled_lo/564x/34/2a/e5/342ae5f394a0130bb0646b96677fe024.jpg width=400>
 --in development--
