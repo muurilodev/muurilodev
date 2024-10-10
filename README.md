@@ -6,11 +6,11 @@
 <img align= "bottom" src=https://i.pinimg.com/enabled_lo/564x/47/1c/e7/471ce7b6d591a328189506ae6cbb59d6.jpg width=250>
 ➤ **Skills**
 
-• 🌾 currently a Bachelor's student of <a href="https://www.ulbra.br/" rel="nofollow"> ULBRA </a> and <a href="https://www.unitins.br/nPortal/" rel="nofollow">UNITINS</a>
+• 🌾 *currently a Bachelor's student of <a href="https://www.ulbra.br/" rel="nofollow"> ULBRA </a> and <a href="https://www.unitins.br/nPortal/" rel="nofollow">UNITINS</a>*
 
-• 🥀 Ux & UI amateour
+• 🥀 *Ux & UI amateour*
 
-• 🌿10x medalist/mentionist in academic olympics
+• 🌿*10x medalist/mentionist in academic olympics*
 
 ➤ **More about me**<div>
 
