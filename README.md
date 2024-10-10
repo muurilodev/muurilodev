@@ -10,7 +10,7 @@
 
 • 🥀 Ux & UI amateour
 
-• 🌿
+• 🌿10x medalist/mentionist in academic olympics
 
 ➤ **More about me**
 
@@ -18,6 +18,6 @@
 
 • ✍️ a writer
 
-• 🎠 
+• 🎠 a video game player
 
 --in development--
