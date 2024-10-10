@@ -18,6 +18,6 @@
 
 • ✍️ a writer
 
-• 🎠 a video game player
+• 🎠 a designer
 
 --in development--
