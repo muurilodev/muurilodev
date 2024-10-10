@@ -6,7 +6,7 @@
 <img align= "bottom" src=https://i.pinimg.com/enabled_lo/564x/47/1c/e7/471ce7b6d591a328189506ae6cbb59d6.jpg width=250><div></div>
 ➤ **Skills**
 
-• 🌾 curretnly a Bachaleor's student of <a href="https://www.ulbra.br/" rel="nofollow"> ULBRA </a> and <a href="https://www.unitins.br/nPortal/" rel="nofollow">UNITINS</a>
+• 🌾 currently a Bachaleor's student of <a href="https://www.ulbra.br/" rel="nofollow"> ULBRA </a> and <a href="https://www.unitins.br/nPortal/" rel="nofollow">UNITINS</a>
 
 •
 
