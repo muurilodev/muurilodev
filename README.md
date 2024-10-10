@@ -12,12 +12,12 @@
 
 • 🌿10x medalist/mentionist in academic olympics
 
-➤ **More about me**
+➤ **More about me**<div>
 
 • 🎠 a philosophy lover
 
 • ✍️ a writer
 
 • 🎠 a designer
-
+</div>
 --in development--
