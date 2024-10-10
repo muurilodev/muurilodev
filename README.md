@@ -8,16 +8,16 @@
 
 • 🌾 currently a Bachaleor's student of <a href="https://www.ulbra.br/" rel="nofollow"> ULBRA </a> and <a href="https://www.unitins.br/nPortal/" rel="nofollow">UNITINS</a>
 
-•
+• 🥀
 
-•
+• 🌿
 
 ➤ **More about me**
 
-•
+• 🎠 a philosophy lover
 
-•
+• ✍️ a writer
 
-•
+• 
 
 --in development--
