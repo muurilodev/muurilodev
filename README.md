@@ -8,7 +8,7 @@
 
 • 🌾 currently a Bachelor's student of <a href="https://www.ulbra.br/" rel="nofollow"> ULBRA </a> and <a href="https://www.unitins.br/nPortal/" rel="nofollow">UNITINS</a>
 
-• 🥀
+• 🥀 Ux & UI amateour
 
 • 🌿
 
@@ -18,6 +18,6 @@
 
 • ✍️ a writer
 
-• 🎠 Ux & UI amateour
+• 🎠 
 
 --in development--
