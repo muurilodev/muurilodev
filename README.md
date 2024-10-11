@@ -22,5 +22,4 @@
 
 ➤ **My works**
 
-<li>*currently just doing academic programns*</li>
 --in development--
