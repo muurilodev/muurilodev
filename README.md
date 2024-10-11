@@ -16,7 +16,7 @@
 
 • 💼 *a philosophy lover*
 
-• 🪶 *a writer*
+• 🪶 *a poetry writer*
 
 • 🎠 *a designer*
 
